@@ -1,3 +1,3 @@
-### Demo
+### my github profile
 
-https://code-sync.codersgyan.com/
+https://github.com/AyushKumarThakur21BCE3771/
